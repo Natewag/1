@@ -1,1 +1,1 @@
-# @ntwg is main account
+# @ntwg
